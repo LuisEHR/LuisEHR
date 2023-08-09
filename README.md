@@ -5,7 +5,7 @@
 
 - 📚 I’m currently learning **new programming languages**
 
-- 🤝🏻 I’m looking to collaborate on **new projects freelance**
+- 🤝🏻 I’m looking to collaborate on **new projects or development company**
 
 - ⛑ I’m looking for help with **my skills and creativity**
 
